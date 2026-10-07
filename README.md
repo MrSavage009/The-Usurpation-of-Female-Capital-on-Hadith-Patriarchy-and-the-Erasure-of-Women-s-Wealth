@@ -1,0 +1,1 @@
+# The-Usurpation-of-Female-Capital-on-Hadith-Patriarchy-and-the-Erasure-of-Women-s-Wealth
